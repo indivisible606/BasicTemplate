@@ -41,15 +41,13 @@ NEW! Ask your Durbin (202-224-2152) and Duckworth (202-224-2854) to OPPOSE Senat
 
 Continue to call your senators and representatives and demand they support gun law reform that will put us on the path to a safer country.
 
-**Chicago Action (Optional/Chicago residents)
-**
+**Chicago Action (Optional/Chicago residents)**
 
 NEW! Join Raise Your Hand this Thursday, 11/16, for a Special Education Public Forum at the Jesse White Community Center, 412 W. Chicago, from 7-9pm. Flyer: http://www.ilraiseyourhand.org/ryh_special_education_forum
 
 If you haven't yet...Call your representative in the House ( https://www.house.gov/representatives/find/ ) and urge them to support House Bill 1774, which will require an elected school board for Chicago. This is the first step toward reversing the illegal cuts to special education that were recently exposed.
 
-**## Past Successes
-**
+## Past Successes
 
 · Canvassing for ACA open enrollment at farmers markets went well. People seemed genuinely surprised they could still apply and were appreciative of information!
 
