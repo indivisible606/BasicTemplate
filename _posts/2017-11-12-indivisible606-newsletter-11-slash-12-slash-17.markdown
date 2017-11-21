@@ -48,7 +48,11 @@ NEW! Join Raise Your Hand this Thursday, 11/16, for a Special Education Public F
 
 If you haven't yet...Call your representative in the House ( https://www.house.gov/representatives/find/ ) and urge them to support House Bill 1774, which will require an elected school board for Chicago. This is the first step toward reversing the illegal cuts to special education that were recently exposed.
 
-**Past Successes
+**## Past Successes
 **
 
-Big wins in elections this past Tuesday! Great momentum building! Specific shoutouts from winning candidates and pundits to Indivisible!
+· Canvassing for ACA open enrollment at farmers markets went well. People seemed genuinely surprised they could still apply and were appreciative of information!
+
+· Partnership with Raise Your Hand, a special education advocacy group, is off to a good start. We promoted their panel last Thursday and will meet to discuss future interactions.
+
+· We seem to be close to moving IL out of CrossCheck, and other local groups had good numbers at recent ISBE meetings! More info below.
