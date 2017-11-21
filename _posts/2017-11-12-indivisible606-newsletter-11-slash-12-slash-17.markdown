@@ -19,7 +19,7 @@ If you haven’t yet - Call Durbin (202-224-2152) and Duckworth (202-224-2854) a
 
 NEW! Call Call Durbin (202-224-2152) and Duckworth (202-224-2854) and tell them you oppose any nomination for federal judge not given a “Well Qualified” rating by the American Bar Association’s Committee on Federal Judiciary. Trump has nominated - and the Senate has approved - more fed judges than any other recent President. Many of them are bigots and misogynists. Several are unqualified!
 
-\*\*Basic Democracy\*\*  
+**Basic Democracy**
 NEW! This Wednesday, attend the IL State Senate Telecomm and Infotech Committee meeting to hear what the IL State Board of Elections has to say to try to justify continued participation in the discriminatory and unsecure voter CrossCheck program. Open to the public. ID required for entry. 11/15, 160 N. LaSalle, 6th floor committee room.
 
 NEW! IL state senate hopefuls must secure enough signatures to petition for candidacy by Dec. 4th. Find a candidate that you like and sign his/her/their petition if needed.
