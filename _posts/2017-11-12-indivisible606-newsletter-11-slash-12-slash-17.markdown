@@ -4,7 +4,7 @@ date: 2017-11-12 22:03:00 Z
 is featured: true
 ---
 
-\*\*Actions & Events\*\*
+**Actions & Events**
 
 Taxes
 
