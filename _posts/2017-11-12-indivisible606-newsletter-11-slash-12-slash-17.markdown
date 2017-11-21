@@ -4,8 +4,8 @@ date: 2017-11-12 22:03:00 Z
 is featured: true
 ---
 
-\*\*Actions & Events
-\*\*
+\*\*Actions & Events\*\*
+
 Taxes
 
 NEW! Call Rauner (217-782-0244) and ask him to public opposed the repub tax reform bill that will hurt IL residents.
