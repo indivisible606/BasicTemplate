@@ -5,7 +5,7 @@ is featured: true
 layout: post
 ---
 
-# Actions & Events
+## Actions & Events
 
 **Taxes**
 
