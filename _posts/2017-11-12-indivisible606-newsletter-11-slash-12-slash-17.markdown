@@ -7,7 +7,7 @@ layout: post
 
 # Actions & Events
 
-Taxes
+**Taxes**
 
 NEW! Call Rauner (217-782-0244) and ask him to public opposed the repub tax reform bill that will hurt IL residents.
 
@@ -15,8 +15,8 @@ No other new actions to do here yet, but be ready for action as the Repubs ramp 
 
 If you haven’t yet - Call Durbin (202-224-2152) and Duckworth (202-224-2854) and let them know that you are AGAINST Trump’s tax cuts for the wealthy! Trickle down economics is a proven failure and hurts everyone but the rich. 
 
-\*\*Federal Judges Confirmations
-\*\*
+**Federal Judges Confirmations
+**
 NEW! Call Call Durbin (202-224-2152) and Duckworth (202-224-2854) and tell them you oppose any nomination for federal judge not given a “Well Qualified” rating by the American Bar Association’s Committee on Federal Judiciary. Trump has nominated - and the Senate has approved - more fed judges than any other recent President. Many of them are bigots and misogynists. Several are unqualified!
 
 \*\*Basic Democracy
