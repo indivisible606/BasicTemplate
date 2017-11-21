@@ -2,9 +2,10 @@
 title: Indivisible606 Newsletter 11/12/17
 date: 2017-11-12 22:03:00 Z
 is featured: true
+layout: post
 ---
 
-**Actions & Events**
+# Actions & Events
 
 Taxes
 
